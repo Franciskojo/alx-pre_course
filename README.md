@@ -1,1 +1,1 @@
-My first readme
+I can never be poor
